@@ -1,6 +1,6 @@
 <div align="center">
 
-[@](https://github/orthowo) $\color{lightblue}{orthowo}$⠀⠀**♡**⠀⠀[@](https://github/sukunabIood)$\color{red}{sukunabIood}$
+[@](https://github/orthowo) $\color{lightblue}{orthowo}$⠀⠀**♡**⠀⠀[@](https://github/sukunabIood) $\color{red}{sukunabIood}$
 
 
  
